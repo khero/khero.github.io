@@ -12,3 +12,5 @@ Als eines Tages der Schrottplatzbesitzer Amos ermordet wird, ist Turner gezwunge
 
 > sabbersabbersabbersabber
 > wuffknurrwuffwuff
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/6/67/Dogue_de_Bordeaux_standing.jpg"/>
