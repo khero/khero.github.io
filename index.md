@@ -1,1 +1,3 @@
-# Huuutsch
+# Huutsch
+
+Als eines Tages der Schrottplatzbesitzer Amos ermordet wird, ist Turner gezwungen, den einzigen Zeugen der Tat bei sich aufzunehmen – eine sabbernde Bordeaux-Dogge namens Huutsch. Anfangs hält Turner dies noch für einen großen Fehler, da der Hund sein Vorzeigehaus verwüstet. In liebevoller Kleinarbeit zerlegt er sämtliches Mobiliar sowie sein Auto und zerrt Turner eines Tages in das Haus der attraktiven Tierärztin Emily Carson.
