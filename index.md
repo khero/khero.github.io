@@ -9,3 +9,6 @@ Als eines Tages der Schrottplatzbesitzer Amos ermordet wird, ist Turner gezwunge
 * sabbernd
 * treu
 * schlau
+
+> sabbersabbersabbersabber
+> wuffknurrwuffwuff
